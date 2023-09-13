@@ -1,0 +1,1 @@
+Panel kontrolny koła fortuny
